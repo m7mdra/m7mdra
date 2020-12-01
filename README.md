@@ -1,4 +1,6 @@
-Mohammed Elshiekh
+▻Hi my name Mohammed Elshiekh 
 
-Mobile developer(android,ios,flutter) 
+▻Im a Mobile developer mainly Android and Flutter and recently iOS.
+
+▻Located in khartoum,sudan.
 
